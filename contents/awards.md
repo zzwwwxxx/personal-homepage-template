@@ -1,3 +1,3 @@
-- 校级一等奖学金, 2022.  
+- Coming soon 
 
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- Coming soon
